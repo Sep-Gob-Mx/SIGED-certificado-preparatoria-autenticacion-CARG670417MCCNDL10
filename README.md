@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CARG670417MCCNDL10
+CARG670417MCCNDL10
